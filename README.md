@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-PEEA970422HSRRSB05
+PEEA970422HSRRSB05
